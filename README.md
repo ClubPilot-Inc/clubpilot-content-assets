@@ -1,0 +1,1 @@
+# clubpilot-content-assets
